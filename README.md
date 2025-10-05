@@ -195,9 +195,9 @@ If you encounter any issues:
 
 ## 📞 Contact
 
-- **GitHub**: [@Fazaebadar](https://github.com/Fazaebadar)
-- **Email**: [fazaebadar@gmail.com]
-- **Phone No**: [+92 303 414 5112]
+- **GitHub**: [@itsfarhanpk](https://github.com/itsfarhanpk)
+- **Email**: [itsfarhan.pk@gmail.com]
+- **Phone No**: [+92 304 040 0067]
 
 ---
 
